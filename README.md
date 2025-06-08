@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Jackwang-lea
+👋 Hi, I’m Jackwang
 
